@@ -1,3 +1,8 @@
+
+
+Uploading Initial_Scene_-_2026-08-25_202608251259.mp4…
+
+
 # 🏦 Financial Research Analyst Agent
 
 <div align="center">
